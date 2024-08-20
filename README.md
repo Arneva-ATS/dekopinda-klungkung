@@ -1,1 +1,1 @@
-# dekopinda-klungkung
+# dekopinda-karanganyar
